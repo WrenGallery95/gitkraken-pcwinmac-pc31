@@ -1,4 +1,4 @@
-# 
+# Último GitKraken temas para Mac OS | VIP GitKraken temas para PC Windows. Con diff visual y pruebas automatizadas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
